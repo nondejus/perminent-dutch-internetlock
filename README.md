@@ -1,1 +1,7 @@
 # perminent-dutch-intrnetlock
+
+https://en.wikipedia.org/wiki/Blockade
+
+https://en.wikipedia.org/wiki/Internet_service_provider
+
+https://nl.wikipedia.org/wiki/Staat_der_Nederlanden
